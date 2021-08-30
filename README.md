@@ -1,1 +1,1 @@
-# Visual\ Q\&A
+# Visual Q\&A
